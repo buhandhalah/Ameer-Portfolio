@@ -1,2 +1,0 @@
-# buhandhalah.github.io
-
